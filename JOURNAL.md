@@ -16,3 +16,5 @@ https://docs.google.com/document/d/1kE1F0Hhei37jDiHUInFDBGJX95wxOnmSs1SGKVVP4iw/
 
 
 ![](assets/20260421_214155_IMG_1079.jpg)
+
+**TOTAL TIME SPENT : 4 HOURS**
